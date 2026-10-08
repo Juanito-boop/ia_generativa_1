@@ -1,1 +1,0 @@
-# ia_generativa_1
